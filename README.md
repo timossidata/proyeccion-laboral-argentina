@@ -1,4 +1,5 @@
 
+<img width="400" height="400" alt="linea pobreza (1) (1)" src="https://github.com/user-attachments/assets/625e5584-9ef0-4b54-b623-20e8f638a266" />
 
 
 ANALISIS
